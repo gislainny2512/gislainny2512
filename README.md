@@ -1,4 +1,4 @@
-## ✨ Oi ! Eu sou a Gislainny Jamilakni  👋
+## ✨ Hi ! Eu sou a Gislainny Jamilakni  👋
 
 
 - 👋 Tenho 25 anos;
